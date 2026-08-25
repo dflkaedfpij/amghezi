@@ -1,2 +1,2 @@
 # amghezi
-just a little boy 
+yek gav daram amghezi
